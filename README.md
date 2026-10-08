@@ -1,0 +1,2 @@
+# premium-zogan-001-japanese-zogan-metal-inlay-gro
+Tired of losing track of groove depths and widths across your zogan projects? The Japanese Zogan Metal Inlay Groove Cutting Tracker brings order to your precision work, ensuring every cut aligns perfectly with your inlay design.  This Notion template solves the inconsistent groove cutting problem by providing a structured database to record and ana
